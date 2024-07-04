@@ -1,3 +1,3 @@
 - 👋 Hi, I’m Bobby (@Bobby-MM)
-- 👀 I’m interested in buiding stuff with my team!
-- 📫 How to reach me : bobby.spencer@maisonmoderne.com
+- 👀 I’m interested in buiding stuff!
+- 📫 How to reach me : spencer.bobbyj@gmail.com
